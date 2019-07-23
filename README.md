@@ -1,0 +1,4 @@
+# TOOLS INI DI BUAT OLEH MR.BABA
+# KALIAN BISA KUNJUNGI SOSMED KAMI ig pranata_pasha
+# TEAM PAkistAn CYBER ErRoR SySTem
+# Special Thanks to MR.BABA
